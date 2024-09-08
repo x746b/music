@@ -6,6 +6,7 @@ Futurescapes:
 - Sub Zero: Dark Sci Fi Music For Winter Relaxation: https://www.youtube.com/watch?v=n--SX54AUZU
 - Outpost Theta: Dark Ambient Sci Fi: https://www.youtube.com/watch?v=tzmsyg4-rBQ
 - Voyager: Ambient SPACE Music for Colonizing the Cosmos: https://www.youtube.com/watch?v=FxIYRYhGZXo
+- Alone on Distant Planets: https://www.youtube.com/watch?v=YUaSVFXTHlk
 
 Deep chill:
 - Chill Music Lab: https://www.youtube.com/@MusicLabChill
