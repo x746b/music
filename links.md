@@ -21,3 +21,4 @@ Deep chill:
 
 Smooth Jazz:
 - Work Jazz Playlist ☕ Smooth Jazz and Sweet Bossa Nova Music for Work, Study & Relax: https://www.youtube.com/watch?v=35kwlY_RR08
+- December Winter Jazz in Lakeside (live): https://www.youtube.com/watch?v=UyR06mvswH4 
