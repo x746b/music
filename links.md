@@ -2,7 +2,6 @@ Live channels:
 - Deep Work Music 24/7 — Concentration Mix for Programming, Coding: https://www.youtube.com/watch?v=CksoG8y4jDQ
 - Night Music for Work — Deep Focus Playlist: https://www.youtube.com/watch?v=4cEKAYnxbrk
 
-
 Chronoscapes:
 - Nostalgia - Post Apocalyptic Dark Ambient - Dystopian Sci-Fi Music for Study: https://www.youtube.com/watch?v=yxigH7sFQoQ
 
@@ -11,6 +10,11 @@ Futurescapes:
 - Outpost Theta: Dark Ambient Sci Fi: https://www.youtube.com/watch?v=tzmsyg4-rBQ
 - Voyager: Ambient SPACE Music for Colonizing the Cosmos: https://www.youtube.com/watch?v=FxIYRYhGZXo
 - Alone on Distant Planets: https://www.youtube.com/watch?v=YUaSVFXTHlk
+- Harbour: Ambient Sci-Fi Music Where Space and Time Meet: https://www.youtube.com/watch?v=jxDaH9yluYY
+
+Eternal Dystopia:
+- Mix: https://www.youtube.com/watch?v=H0ZJzJ5fC0c&list=RDH0ZJzJ5fC0c
+- Research Center - Post Apocalyptic Dark Ambient Journey - Dark Dystopian Ambience: https://www.youtube.com/watch?v=2mcGhpbWlyg
 
 Deep chill:
 - Chill Music Lab: https://www.youtube.com/@MusicLabChill
