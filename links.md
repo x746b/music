@@ -17,6 +17,8 @@ Eternal Dystopia:
 - Research Center - Post Apocalyptic Dark Ambient Journey - Dark Dystopian Ambience: https://www.youtube.com/watch?v=2mcGhpbWlyg
 
 Deep chill:
+- Calm until morning: https://www.youtube.com/watch?v=sYjhEwLSDtA
+- Late Night Coding: https://www.youtube.com/watch?v=Hqmv9XNHmjo
 - Chill Music Lab: https://www.youtube.com/@MusicLabChill
 - Hacker Music — Dark Chillstep Playlist — Anonymous Mix: https://www.youtube.com/watch?v=32XsfeIX_rM
 - Hacking mix : Vol 1: https://www.youtube.com/watch?v=WWICzLmJ8Y0
