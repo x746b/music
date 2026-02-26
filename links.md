@@ -2,6 +2,9 @@ Live channels:
 - Deep Work Music 24/7 — Concentration Mix for Programming, Coding: https://www.youtube.com/watch?v=CksoG8y4jDQ
 - Night Music for Work — Deep Focus Playlist: https://www.youtube.com/watch?v=4cEKAYnxbrk
 
+Cyber City Moods: https://www.youtube.com/@Cyber_City_Moods
+- The Recall Loop | Ambient Cyberpunk Soundtrack to Code, Create and Drift: https://www.youtube.com/watch?v=QOaScWimga8&list=RDQOaScWimga8&start_radio=1
+
 Chronoscapes:
 - Nostalgia - Post Apocalyptic Dark Ambient - Dystopian Sci-Fi Music for Study: https://www.youtube.com/watch?v=yxigH7sFQoQ
 
