@@ -5,6 +5,9 @@ Live channels:
 Chronoscapes:
 - Nostalgia - Post Apocalyptic Dark Ambient - Dystopian Sci-Fi Music for Study: https://www.youtube.com/watch?v=yxigH7sFQoQ
 
+Liminal Ambient Consortium:
+- Dark Ambient Study Music for Focus and Concentration: https://www.youtube.com/watch?v=ddxSg7Ze0iI
+
 Futurescapes:
 - Sub Zero: Dark Sci Fi Music For Winter Relaxation: https://www.youtube.com/watch?v=n--SX54AUZU
 - Outpost Theta: Dark Ambient Sci Fi: https://www.youtube.com/watch?v=tzmsyg4-rBQ
