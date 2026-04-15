@@ -7,6 +7,7 @@ Cyber City Moods: https://www.youtube.com/@Cyber_City_Moods
 
 Chronoscapes:
 - Nostalgia - Post Apocalyptic Dark Ambient - Dystopian Sci-Fi Music for Study: https://www.youtube.com/watch?v=QOaScWimga8
+- Erosion - A Dystopian Cyberpunk Ambient Journey - Posy Apocalyptic Ambient Music: https://www.youtube.com/watch?v=Q3UZwL6r5QM
 
 Liminal Ambient Consortium:
 - Dark Ambient Study Music for Focus and Concentration: https://www.youtube.com/watch?v=ddxSg7Ze0iI
