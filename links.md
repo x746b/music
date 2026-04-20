@@ -9,6 +9,11 @@ Chronoscapes:
 - Nostalgia - Post Apocalyptic Dark Ambient - Dystopian Sci-Fi Music for Study: https://www.youtube.com/watch?v=QOaScWimga8
 - Erosion - A Dystopian Cyberpunk Ambient Journey - Posy Apocalyptic Ambient Music: https://www.youtube.com/watch?v=Q3UZwL6r5QM
 
+Quantum Shores:
+Isolation Beacon – Dark Ambient Soundscape: https://youtu.be/chbZSze_tcA?si=S2dLdUm-iS7JKYLQ
+Whispers of the Abandoned Snowfield – Dark Ambient Music: https://youtu.be/-AfcF95v5Oo?si=JnhfX9p-Y5TeulTi
+Frozen Outpost Echoes – Dark Ambient Music: https://youtu.be/sIMtEB9PlhI?si=2y5PjDiryMxNP4_U
+
 Liminal Ambient Consortium:
 - Dark Ambient Study Music for Focus and Concentration: https://www.youtube.com/watch?v=ddxSg7Ze0iI
 
