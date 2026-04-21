@@ -2,6 +2,10 @@ Live channels:
 - Deep Work Music 24/7 — Concentration Mix for Programming, Coding: https://www.youtube.com/watch?v=CksoG8y4jDQ
 - Night Music for Work — Deep Focus Playlist: https://www.youtube.com/watch?v=4cEKAYnxbrk
 
+Programming Flow: https://www.youtube.com/@Programming_Flow
+- Live: No Distractions Coding Music | Dark Hacker Cyberpunk City Ambience 24/7: https://www.youtube.com/live/0ItkC71-_zU?si=wLeHF0kEyPi6IE_T
+- Hacker Room Focus — Deep Programming Music: https://youtu.be/qA2tJux5Ths?si=XB4SIBJDEl4ldGaR
+
 Cyber City Moods: https://www.youtube.com/@Cyber_City_Moods
 - The Recall Loop | Ambient Cyberpunk Soundtrack to Code, Create and Drift: https://www.youtube.com/watch?v=QOaScWimga8&list=RDQOaScWimga8
 
