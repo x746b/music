@@ -2,6 +2,11 @@ Live channels:
 - Deep Work Music 24/7 — Concentration Mix for Programming, Coding: https://www.youtube.com/watch?v=CksoG8y4jDQ
 - Night Music for Work — Deep Focus Playlist: https://www.youtube.com/watch?v=4cEKAYnxbrk
 
+Rocky & Groovy:
+- Psychedelic Desert Rock | Ambient & Chillout Mix for Cosmic Flow: https://youtu.be/bSYE6wTDM_Y?si=F0csPdI8pgUchgmc
+- Psychedelic Rock | Hypnotic Guitar Trip • Desert & Cosmic Vibes: https://youtu.be/FA_zhgUJK5c?si=vqOFsn5WrNc7ZgKj
+- Psychedelic Desert Rock Trip | Desert Mirage Groove: https://youtu.be/Hx5rW6FHMlA?si=wgBcc-_Q-Q3puXQb
+  
 Programming Flow: https://www.youtube.com/@Programming_Flow
 - Live: No Distractions Coding Music | Dark Hacker Cyberpunk City Ambience 24/7: https://www.youtube.com/live/0ItkC71-_zU?si=wLeHF0kEyPi6IE_T
 - Hacker Room Focus — Deep Programming Music: https://youtu.be/qA2tJux5Ths?si=XB4SIBJDEl4ldGaR
