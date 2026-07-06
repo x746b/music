@@ -1,4 +1,5 @@
 Live channels:
+- Dark Hacker Terminal | Cyberpunk Coding Music: https://www.youtube.com/live/yT5Jx87JIGk?si=YbCZ6s_rzmdL3DHU
 - Deep Work Music 24/7 — Concentration Mix for Programming, Coding: https://www.youtube.com/watch?v=CksoG8y4jDQ
 - Night Music for Work — Deep Focus Playlist: https://www.youtube.com/watch?v=4cEKAYnxbrk
 
